@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AAJA000620MGTLRLA2
+AAJA000620MGTLRLA2
